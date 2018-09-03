@@ -22,4 +22,4 @@ Rules & Info
 
 Last but not least, staff members have the final say. If you don't agree, bring it up with a staff member above the one making the decision. 
 
-Any break of these rules will be dealt with accordinly.
+Any break of these rules will be dealt with accordinly
